@@ -1,4 +1,4 @@
-# Hi there 👋 I'm Atqui!
+# Hey there, I'm Atqui! Welcome to my page!
 
 ## 🚀 Languages and Tools:
 
